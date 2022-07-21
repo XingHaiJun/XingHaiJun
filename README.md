@@ -9,4 +9,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about 
   - I like the sea and the starry sky
   - I dream of creating a 'world'
-  - http://www.mmcc.live
+  - [星海君的个人网站](http://www.mmcc.live)
